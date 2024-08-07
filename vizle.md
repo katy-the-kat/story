@@ -1,7 +1,3 @@
-Here's the updated passage with Lylanodes as a summerhost:
-
----
-
 In the digital realm where trust was currency and betrayal the sharpest weapon, there existed a shadowy figure known as Vizle. His name became synonymous with treachery, his every action leaving a trail of shattered alliances and broken promises.
 
 Vizle was once part of a thriving community centered around is-a.space, a beloved platform offering free hosting. It was a beacon for many, but behind its glowing facade, a storm was brewing. Vizle, driven by greed and ambition, began a campaign of betrayal that would shake the very foundations of the community.
